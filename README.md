@@ -12,5 +12,5 @@
 
 - Hazırlayan :  ``TRAGON#3466``
 
-``En Üstte Yazanı Dikkate Alan Alır Görürsem Zaten Şikayet Edeceğim,I AM OGÜN``
+``bu st teamin altyapısıdır,``
 **lan bunu çalmayın lan**
