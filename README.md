@@ -1,6 +1,6 @@
 # Çalınması Yasaktır
 
-<https://tenor.com/view/fernando-muslera-muslera-penalt%C4%B1-muslera-dans%C4%B1-penalt%C4%B1muslera-gif-19380266>
+<https://cdn.discordapp.com/attachments/789267122773033000/793484810839916574/muslera.gif>
 
 
 
